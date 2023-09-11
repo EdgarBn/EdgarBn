@@ -14,3 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+🔭 I’m currently working on learning coding.
+📫 How to reach me: amigouh@gmail.com
+💬 Ask me about my puppy
